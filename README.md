@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @primaonly
+- asalamualaikum tc prima senpai cuy 
